@@ -1,2 +1,0 @@
-# erinfischerdesign
-Graphic Design Portfolio
